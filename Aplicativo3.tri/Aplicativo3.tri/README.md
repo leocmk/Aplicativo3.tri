@@ -1,1 +1,0 @@
-# Aplicativo3.tri
